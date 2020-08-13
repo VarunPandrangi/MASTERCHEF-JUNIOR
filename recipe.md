@@ -1,4 +1,6 @@
-Step 1 : Add :- 
+Step 1 : 
+Add :- 
+
 2 cups of wheat flour
 2 teaspoons of active dried yeast
 1/2 teaspoon salt
