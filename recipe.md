@@ -2,12 +2,19 @@ Step 1 :
 Add :- 
 
 2 cups of wheat flour
+
 2 teaspoons of active dried yeast
+
 1/2 teaspoon salt
-4 teaspoons Sugar
+
+4 teaspoons of powdered Sugar
+
 5 teaspoons unsalted butter
+
 1/3 cup whole milk
+
 3 tablespoons water
+
 
 Step 2 : Mix the Dough
 
