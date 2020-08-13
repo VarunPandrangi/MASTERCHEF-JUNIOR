@@ -8,7 +8,11 @@ Step 1 : Add :-
 3 tablespoons water
 
 Step 2 : Mix the Dough
+
 Step 3 : Knead the Dough
+
 Step 4 : Roll and Cut the Donuts
+
 Step 5 : Fry the Donuts
+
 Step 6 : Glaze the Donuts with the flavour
